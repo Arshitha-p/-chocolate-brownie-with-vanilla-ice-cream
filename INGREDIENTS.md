@@ -1,10 +1,19 @@
-½ cup unsalted butter melted
-½ cup white sugar
-¾ cup light brown sugar
-2 teaspoons vanilla extract
-2 large eggs room temperature
-¾ cup all purpose flour
-½ cup dutch cocoa powder
-½ teaspoon salt
-½ cup mini chocolate chips
-½ cup walnuts chopped
+1.½ cup unsalted butter melted
+
+2.½ cup white sugar
+
+3.¾ cup light brown sugar
+
+4.2 teaspoons vanilla extract
+
+5.2 large eggs room temperature
+
+6.¾ cup all purpose flour
+
+7.½ cup dutch cocoa powder
+
+8.½ teaspoon salt
+
+9.½ cup mini chocolate chips
+
+10.½ cup walnuts chopped
